@@ -8,4 +8,3 @@ maslo driving my classmate over with my car
   <img src="https://files.catbox.moe/k6iwn8.png">
 </p>
 
-[dni page](https://rentry.co/matisdni)
