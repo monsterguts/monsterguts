@@ -9,5 +9,5 @@ maslo driving my classmate over with my car
 </p>
 my ICONIC github pfp by @Aeenic
 <p allign="center">
-  <img src="https://files.catbox.moe/khrlhc.png">
+  <img src="https://files.catbox.moe/l90tjy.png">
 </p>
