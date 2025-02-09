@@ -1,4 +1,8 @@
 ## guys totally draw for me and i'll link it here
+<33
+<p allign="center">
+  <img src="https://files.catbox.moe/gm90yq.png">
+</p>
 drawing by maslo chan the goat :3 
 <p allign="center">
   <img src="https://files.catbox.moe/uj3evz.png">
