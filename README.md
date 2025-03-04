@@ -3,6 +3,10 @@
 <p allign="center">
   <img src="https://files.catbox.moe/gm90yq.png">
 </p>
+this is made by my AMAZINF absolutely GOATED dad ever pls i love him so much/p
+<p allign="center">
+  <img src="https://files.catbox.moe/fsc0vy.png">
+</p>
 drawing by maslo chan the goat :3 
 <p allign="center">
   <img src="https://files.catbox.moe/uj3evz.png">
