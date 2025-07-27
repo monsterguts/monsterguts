@@ -1,21 +1,7 @@
-## guys totally draw for me and i'll link it here
-<33
 <p allign="center">
-  <img src="https://files.catbox.moe/gm90yq.png">
+  <img src="https://files.catbox.moe/xz0emf.jpg">
 </p>
-this is made by my AMAZINF absolutely GOATED dad ever pls i love him so much/p
-<p allign="center">
-  <img src="https://files.catbox.moe/fsc0vy.png">
-</p>
-drawing by maslo chan the goat :3 
-<p allign="center">
-  <img src="https://files.catbox.moe/uj3evz.png">
-</p>
-maslo driving my classmate over with my car
-<p allign="center">
-  <img src="https://files.catbox.moe/k6iwn8.png">
-</p>
-my ICONIC github pfp by @Aeenic
-<p allign="center">
-  <img src="https://files.catbox.moe/l90tjy.png">
-</p>
+hi im matt for those who r lazy to read my absolutely stunning strawpage made by my boyfriend let me summarize
+i'm 16 january 22 i like pressure, iron lung, the pony factory, squirrel stapler, brawlstars etc im lazy
+idk how to format profile on github but watevur im rlly nice we can be friends just hit me up
+u can leave message in my ata (magfua.atabook) whisper to me on pt or even dm on discord (magfua)
