@@ -1,6 +1,7 @@
 <p allign="center">
-  <img src="https://files.catbox.moe/xz0emf.jpg">
+  <img src="https://files.catbox.moe/fjv1uo.gif">
 </p>
+GIF BY MY AWESOME AMAZING DAD RED <333
 hi im matt 
 i'm 16 january 22 i like pressure, iron lung, ultrakill, the pony factory, squirrel stapler, brawlstars, uma musume etc im lazy
 idk how to format profile on github but watevur im rlly nice we can be friends just hit me up
