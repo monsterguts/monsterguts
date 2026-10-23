@@ -1,6 +1,2 @@
-urbanshade approved sebastian solace's beloved boyfriend~
-<img src="https://i.ibb.co/Y46Hqqzr/i3424mage.png">
-<img src="https://i.ibb.co/wZC04BG7/Screenshot-2026-04-12-231306.png">
-hi im matthew! im.. legally.. polish? iguess 🙂 i used to be a regular gay man but the polish effect has gotten to me so i might aswell be a femboy
-<img src="https://files.catbox.moe/fbheq8.png">
-imm nonsharing with seb but sebby yumes are still very welcome to interact
+im 18 soon wow
+<img src="https://i.pinimg.com/736x/c9/7e/dc/c97edcc8f871a729c9a24f733a3c6d9a.jpg">
